@@ -13,5 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ... devorakkuma@gmail.com
 - 😄 Pronouns: ... Bear, Epicurean
 - ⚡ Fun fact: ... 
-  - The first impression someone gets upon meeting me might be that I am cold and reserved, but according to my close friends, that's not the case at all.
+  The first impression someone gets upon meeting me might be that I am cold and reserved, but according to my close friends, that's not the case at all.
 
